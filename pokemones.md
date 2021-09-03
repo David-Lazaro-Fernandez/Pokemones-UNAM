@@ -1,3 +1,4 @@
-[David Lázaro Fernández](https://github.com/David-Lazaro-Fernandez) 
+[Alexis](https://github.com/AlexisDguez) 
 
-![image](https://user-images.githubusercontent.com/57787993/132057081-0d745813-2df3-4199-8641-335398813587.png)
+![image](![image](https://user-images.githubusercontent.com/31232048/132059319-86c205f0-4fcd-489d-9827-b0bb3553d5eb.png)
+
